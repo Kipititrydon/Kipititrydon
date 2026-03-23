@@ -1,9 +1,9 @@
 ## Hi there 👋
-I greet all of you gurls my name is Mr Trydon, so i add you because i need you contribution in this developpement application. If you're aggree send me a message please.
+I greet all of you gurls my name is Mr Trydon, so i add you because i need you contribution in this developpement application. If you're aggree send me a message please, i will be happyness to work with you.
 
 Bonjour, je m’appelle patrick musukulu, je suis développeur.
 Je suis spécialisé dans la création d’applications et de sites web, avec une passion pour la résolution de problèmes.
-J’aime apprendre de nouvelles technologies et travailler sur des projets innovants.
+J’aime apprendre de nouvelles technologies et travailler sur des projets innovants. 
 
 
 
